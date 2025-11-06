@@ -22,6 +22,6 @@ I'm a recent graduate with a deep passion for cybersecurity, currently pursuing 
   - **Cybersecurity Research**: Regularly engage in workshops, hands-on labs, and create detailed project documentation.
 
 - 🤝 **Connect with Me**:
-  - [LinkedIn](www.linkedin.com/in/adityan-prakash-403ba5332) – Let’s connect and talk about cybersecurity!
+  - [LinkedIn](https://www.linkedin.com/in/adityannn/) – Let’s connect and talk about cybersecurity!
   
 Thanks for stopping by! I’m open to collaborations, discussions on all things cyber, or just a friendly chat. 😊
